@@ -1,2 +1,3 @@
 # Fridaydeneme
 asas
+we
